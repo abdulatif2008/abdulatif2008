@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abdulatif2008
+- 👋 Hi, I’m abdulatif
 - 👀 I’m interested in football IT 
 - 🌱 I’m currently learning ENGLISH and
 - 
